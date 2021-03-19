@@ -1,3 +1,3 @@
 # C_F-Merch-Store
 
-- https://shop.camelfrogpodcast.com
+- https://bit.ly/3eVbMd2
